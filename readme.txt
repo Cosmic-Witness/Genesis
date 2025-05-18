@@ -1,3 +1,3 @@
 genesis
-fuck the queen
-really?
+i love the queen
+long may she reign
